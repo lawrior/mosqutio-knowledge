@@ -46,6 +46,7 @@ https://youtu.be/7l49nLeu1aA
 
 
 ## Ventillátor csapda:
+https://youtu.be/FEsQ4_KiBWQ
 
 ## Élesztős CO2 csapda: - arra jó csak hogy odavonzza a szúnyogokat, és csak keveset ejt csapdába
 https://www.reddit.com/r/lifehacks/comments/b6t8ya/for_regions_with_a_lot_a_mosquitoes_this_diy_trap/
